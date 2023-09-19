@@ -1,2 +1,2 @@
 # super-duper
-na hodine spraveny lolik
+na hodine spraveny lol
